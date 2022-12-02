@@ -4,4 +4,6 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Second, the professor claims that the domestication of dogs happened much earlier than 16,000 years ago. The reason is that footprints of a boy and a dog were found in France. An analysis showed that they are at least 26,000 years old. This casts doubt on the author's assertion that the domestication of dogs started 16,000 years ago.<br/>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Finally, the lecturer asserts that dogs were domesticated in more than one place. This is because the oldest dog fossils were found in Europe, North America, and Middle East. Moreover, the DNA of dogs shows that they had four distinct ancestors from different locations. This goes against the writer's view that dogs became domesticated in China and spread out to other regions.<br/>
 
+<br/>
+
 ## The Etruscan Migration
