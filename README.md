@@ -9,6 +9,8 @@
 ## The Etruscan Migration
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The reading passage argues that the origin of the Etruscans can be explained by three compelling reasons. On the other hand, the lecturer brings up several points to oppose the ideas presented in the reading.<br/>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; First of all, the speaker points out that ancient DNA studies are unreliable. This is supported by the fact that the DNA was from thousands of years ago. This means that it could have been severely damaged. Also, it is doubtful that it has not been contaminated because many people have had contact with the DNA. This strongly contradicts the author's claim that the DNA evidence verifies the origin of the Etruscans.
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Second, the professor claims that the Etruscan language is not related to Turkish. The reason is that different languages can share similar alphabets. This means that sharing similar alphabets cannot be a conclusive link to connect Estrucan to Turkish. In fact, the Etruscan language could be the only surviving memeber of its language family. This casts doubt on the author's assertion that the Etruscan language originated from Turkish.
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Finally, the lecturer asserts that shared funerary practices do not indicate that the Etruscans have Turkish origins. This is because cremation had been existed in northen Italy before the Etruscan civilization was established. This means that the Etruscans were simply the successors to these traditions in the local region. This goes against the writer's view that funerary practices reveals that the Etruscans have Turkish roots.
 
 <br/>
 
