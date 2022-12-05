@@ -8,7 +8,7 @@
 
 ## The Etruscan Migration
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The reading passage argues that the origin of the Etruscans can be explained by three compelling reasons. On the other hand, the lecturer brings up several points to oppose the ideas presented in the reading.<br/>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; First of all, 
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; First of all, the speaker points out that ancient DNA studies are unreliable. This is supported by the fact that the DNA was from thousands of years ago. This means that it could have been severely damaged. Also, it is doubtful that it has not been contaminated because many people have had contact with the DNA. This strongly contradicts the author's claim that the DNA evidence verifies the origin of the Etruscans.
 
 <br/>
 
