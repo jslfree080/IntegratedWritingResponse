@@ -14,4 +14,12 @@
 
 <br/>
 
-## The Origin of Scotland Forts
+## Stock Rewards
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The reading passage argues that the benefits of rewarding employees with company stocks can be explained by three compelling reasons. On the other hand, the lecturer brings up several points to oppose the ideas presented in the reading.<br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; First of all, ~.<br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Second, ~.<br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Finally, ~.<br/>
+
+<br/>
+
+## 
