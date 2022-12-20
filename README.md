@@ -1,6 +1,6 @@
 ## Solar Airplane
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The reading passage argues that the difficulties of an airplane powered just by solar energy to undertake long-haul flight can be explained by three compelling reasons. On the other hand, the lecturer brings up several points to oppose the ideas presented in the reading.<br/>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; First of all, the speaker points out that
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; First of all, the speaker points out that an energy reserve generated during the day is used.
 
 <br/>
 
