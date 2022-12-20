@@ -1,5 +1,5 @@
 ## Solar Airplane
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The reading passage argues that the difficulties of an airplane powered <ins>just</ins> by solar energy to <ins>undertake long-haul flight</ins> can be explained by three compelling reasons. On the other hand, the lecturer brings up several points to oppose the ideas presented in the reading.<br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The reading passage argues that the difficulties of an airplane powered <ins>just</ins> by solar energy to <ins>undertake long-haul flights</ins> can be explained by three compelling reasons. On the other hand, the lecturer brings up several points to oppose the ideas presented in the reading.<br/>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; First of all, the speaker points out that an energy reserve generated during the day is used. This is supported by the fact that the panels were made powerful enough to capture solar energy. Moreover, special batteries were designed to store those extra energy that could be supplied to motors even at night. This strongly contradicts the author's claim that it is doubtful how a solar airplane would operate at night.
 
 <br/>
