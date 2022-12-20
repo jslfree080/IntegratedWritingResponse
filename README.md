@@ -1,3 +1,9 @@
+## Solar Airplane
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The reading passage argues that the difficulties of an airplane powered just by solar energy to undertake long-haul flight can be expalined by three compelling reasons. On the other hand, the lecturer brings up several points to oppose the ideas presented in the reading.<br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; First of all, the speaker points out that
+
+<br/>
+
 ## Stock Rewards
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; The reading passage argues that the benefits of rewarding employees with company stocks can be explained by three compelling reasons. On the other hand, the lecturer brings up several points to oppose the ideas presented in the reading.<br/>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; First of all, the speaker points out that providing employees with stocks would be a great risk based on previous studies. This is supported by the fact that all of the decisions are risky. This means that there could be a general loss when the decision does not work out well. Moreover, employees ignore the risk of failure and as a result, they could lose money when risk acts do not pay off. This <ins>strongly</ins> contradicts the author's claim that statistical evidence reveals that employees with stocks perform much better than those with no stocks.<br/>
